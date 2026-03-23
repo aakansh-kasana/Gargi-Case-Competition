@@ -1,1 +1,0 @@
-# Gargi-Case-Competition
